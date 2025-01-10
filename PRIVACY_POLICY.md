@@ -28,6 +28,12 @@ We may update our Privacy Policy from time to time. We will notify you of any ch
 
 ## 6. Contact Us
 
-If you have any questions about this Privacy Policy, please contact us at tejpalenterprise@gmail.com
-
+If you have any questions about this Privacy Policy, please contact us at sleepbicycle@gmail.com
 **Tejpal Enterprise**
+
+
+
+
+
+
+
